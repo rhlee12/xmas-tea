@@ -3,7 +3,7 @@
 ### Ingredients
 
 1. 1 Quart Boiling Water
-2. 1/4-1/2 cup loose to or tea bags
+2. 1/4-1/2 cup loose tea or tea bags
 3. 3 sticks Cinnnamon
 4. Juice of 3 oranges
 5. Juice of 3 lemons
