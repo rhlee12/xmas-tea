@@ -12,4 +12,4 @@
 8. 3 quarts water
 
 ### Instructions
-Steep tea, cinnamon sticks, and cloves in boiling water for 45 minutes to 1 hour. Add juices. Add sugar and cool water (tasting as you go, may not need as much sugar or water). Will keep about 3 weeks refrigerated. Heat to serve.
+Steep tea, cinnamon sticks, and cloves in boiled water for 45 minutes to 1 hour. Add juices. Add sugar and cool water (tasting as you go, may not need as much sugar or water). **A good amount to start with is 3/4 cup sugar and slightly less than 1 quart water**. Will keep about 3 weeks refrigerated. Heat to serve.
